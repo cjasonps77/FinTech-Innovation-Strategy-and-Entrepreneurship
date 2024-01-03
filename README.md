@@ -1,0 +1,1 @@
+This is one of my course project in Fintech where I have to propose a new business model considering the advantage and disadvantage, who can be the investors and how to get them onboard, team needs, and marketing strategy.
